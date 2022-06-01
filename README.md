@@ -6,4 +6,4 @@ Currently studying arts.
 
 Reach me at marcogomezf@gmail.com
 
-Take a look at my games https://marc00099.itch.io/
+Games I've made https://marc00099.itch.io/
