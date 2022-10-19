@@ -1,9 +1,5 @@
-Hi, I’m Marco
+dev and artstudent
 
-I’m a programmer and a gamedev enthusiastic.
+marcogomezf@gmail.com
 
-Currently studying arts.
-
-Reach me at marcogomezf@gmail.com
-
-Games I've made https://marc00099.itch.io/
+videogames https://marc00099.itch.io/
