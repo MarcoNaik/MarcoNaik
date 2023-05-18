@@ -1,4 +1,4 @@
-dev and artstudent
+dev and arts student
 
 marcogomezf@gmail.com
 
